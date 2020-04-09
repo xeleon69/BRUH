@@ -1,0 +1,2 @@
+# BRUH
+Az sum stranen
